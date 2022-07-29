@@ -2,4 +2,4 @@
 - I’m interested in any opportunities related to AWS.
 - I’m currently a junior at Clemson University
 - I’m looking to collaborate on any projects.
-- You can connect with me on LinkedIn https://www.linkedin.com/in/robert-arnold-24b416210
+- You can connect with me on LinkedIn www.linkedin.com/in/robertwarnold13
