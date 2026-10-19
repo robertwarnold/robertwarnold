@@ -1,5 +1,4 @@
 - Hi, I’m Robert Arnold
-- I’m interested in any opportunities related to cloud computing.
 - I’m currently a graduate student at Cornell University
 - I’m looking to collaborate on any projects.
 - You can connect with me on LinkedIn www.linkedin.com/in/robertwarnold13
